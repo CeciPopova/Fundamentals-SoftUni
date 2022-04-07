@@ -1,3 +1,2 @@
 # Fundamentals-SoftUni
 Solutions 
-hjkkhfgfjfdhfdgjfgjldfjgfjgfdgjhfghjfghfkjhgfhgfjhlgfhjlgfhjklg!
